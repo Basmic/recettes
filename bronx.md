@@ -9,9 +9,9 @@
 
 ##etapes de la recette
 
-* tuer 3 poulpes
-* decouper leur tentacules et les colorer en vert et bleu
-* mélanger avec des tas de bonnes choses
-* ajouter un squelette et un mouton
-* tremper dans l'agent X
-* laisser refroidir pendant 500 a  600ans
+* schtroumpfer 3 poulpes
+* schtroumpfer leur tentacules et les schtroumpfer en vert et bleu
+* schtroumpfer avec des tas de bonnes choses
+* schtroumpfer un squelette et un mouton
+* schtroumpfer dans l'agent X
+* schtroumpfer refroidir pendant 500 a  600ans
