@@ -12,6 +12,6 @@
 * tuer 3 poulpes
 * decouper leur tentacules et les colorer en vert et bleu
 * mélanger avec des tas de bonnes choses
-* ajouter un squelette et un mouton // ne pas oublier de tondre le mouton
+* ajouter un squelette et un mouton // ne pas oublier de tondre le mouton et de retirer les yeux du squelette
 * tremper dans l'agent X
 * laisser refroidir pendant 500 a  600ans
