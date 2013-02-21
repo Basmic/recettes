@@ -10,9 +10,9 @@
 
 ## étapes
 
-* verser l'élixir de brouillecaboche et les poils de troll dans la moitier du sang
-* mettez la tête de votre soeur dans l'acide citrique
-* rejouter le reste du sang
-* congelez la tête de votre petite soeur et laissez reposer les poils de troll pendant 1 a 2h
-* mélanger le tout fermement
-* déguster ( ne pas oublier de préparer son testament)
+* schtroumpfer l'élixir de brouillecaboche et les poils de troll dans la moitier du sang
+* schtroumpfez la tête de votre soeur dans l'acide citrique
+* schtroumpfer le reste du sang
+* schtroumpfez la tête de votre petite soeur et laissez schtroumpfer les poils de troll pendant 1 a 2h
+* schtroumpfer le tout fermement
+* schtroumpfer ( ne pas oublier de schtroumpfer son testament)
