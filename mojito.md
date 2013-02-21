@@ -17,3 +17,4 @@
 * mélanger le tout énergiquement
 * offrez ce cocktail a vos ennemis ( ne pas oublier de préparer leur testament)
 * si vous ne survivez pas oubliez de ...
+* "commentaire complémentaire ..."
