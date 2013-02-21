@@ -15,5 +15,5 @@
 * rajouter le reste du sang
 * congelez la tête de votre petite soeur et laissez reposer les poils de troll pendant 1 a 2h
 * mélanger le tout énergiquement
-* déguster ( ne pas oublier de préparer son testament)
+* offrez ce cocktail a vos ennemis ( ne pas oublier de préparer leur testament)
 * si vous ne survivez pas oubliez de ...
