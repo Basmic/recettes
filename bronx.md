@@ -3,9 +3,9 @@
 ## Ingrédients
 
 * des poulpes
-* des colorants
+* des colorants (2oz)
 * plein de bonne choses
-* *l'agent chimique X*
+* *l'agent chimique X* (0.05oz)
 
 ##etapes de la recette
 
