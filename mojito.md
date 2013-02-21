@@ -2,8 +2,8 @@
 
 ## Ingrédients
 
-* 1L de sang
-* 0.5L d'acide citrique
+* 33.33oz de sang
+* 16.67oz d'acide citrique
 * 3gouttes d'élixir de brouillecaboche
 * des poils de troll
 * la tête de votre petite soeur
